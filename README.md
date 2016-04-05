@@ -25,4 +25,8 @@ http://www.menuvegano.com.br/article/show/1876/doce-de-leite-de-coco
 
 http://www.menuvegano.com.br/article/show/1369/bolo-de-chocolate-com-sabor-de-infancia
 
+http://bambuchuveroso.com.br/muffins-vegano-de-laranja-com-banana/
+
 http://presuntovegetariano.com.br/receitas/vegan/nuggets-de-grao-de-bico-e-legumes/
+
+http://bambuchuveroso.com.br/caldo-verde/
