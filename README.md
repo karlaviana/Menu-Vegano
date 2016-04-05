@@ -24,3 +24,5 @@ http://www.menuvegano.com.br/article/show/2032/quiche-de-tofu-com-legumes
 http://www.menuvegano.com.br/article/show/1876/doce-de-leite-de-coco
 
 http://www.menuvegano.com.br/article/show/1369/bolo-de-chocolate-com-sabor-de-infancia
+
+http://presuntovegetariano.com.br/receitas/vegan/nuggets-de-grao-de-bico-e-legumes/
