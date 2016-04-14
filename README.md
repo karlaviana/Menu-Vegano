@@ -24,6 +24,7 @@ http://www.menuvegano.com.br/article/show/2032/quiche-de-tofu-com-legumes
 http://www.menuvegano.com.br/article/show/1876/doce-de-leite-de-coco
 
 http://www.menuvegano.com.br/article/show/1369/bolo-de-chocolate-com-sabor-de-infancia
+http://www.menuvegano.com.br/article/show/1249/alfajor-vegano-de-doce-de-leite
 
 http://bambuchuveroso.com.br/muffins-vegano-de-laranja-com-banana/
 
