@@ -25,6 +25,7 @@ http://www.menuvegano.com.br/article/show/1876/doce-de-leite-de-coco
 
 http://www.menuvegano.com.br/article/show/1369/bolo-de-chocolate-com-sabor-de-infancia
 http://www.menuvegano.com.br/article/show/1249/alfajor-vegano-de-doce-de-leite
+http://chubbyvegan.net/receitas/creme-de-espinafre-bechamel-de-couve-flor/
 http://www.menuvegano.com.br/article/show/1555/broa-de-milho-e-quinoa
 
 http://bambuchuveroso.com.br/muffins-vegano-de-laranja-com-banana/
