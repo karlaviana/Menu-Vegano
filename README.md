@@ -25,6 +25,7 @@ http://www.menuvegano.com.br/article/show/1876/doce-de-leite-de-coco
 
 http://www.menuvegano.com.br/article/show/1369/bolo-de-chocolate-com-sabor-de-infancia
 http://www.menuvegano.com.br/article/show/1249/alfajor-vegano-de-doce-de-leite
+http://veganagente.consciencia.blog.br/pao-sem-queijo-o-pao-de-queijo-vegano-feito-de-polvilho-e-batata-doce/
 http://chubbyvegan.net/receitas/creme-de-espinafre-bechamel-de-couve-flor/
 http://www.menuvegano.com.br/article/show/1555/broa-de-milho-e-quinoa
 
