@@ -28,6 +28,7 @@ http://www.menuvegano.com.br/article/show/1249/alfajor-vegano-de-doce-de-leite
 http://veganagente.consciencia.blog.br/pao-sem-queijo-o-pao-de-queijo-vegano-feito-de-polvilho-e-batata-doce/
 http://www.menuvegano.com.br/article/show/315/bolo-de-banana-com-canela
 http://chubbyvegan.net/receitas/creme-de-espinafre-bechamel-de-couve-flor/
+http://www.tudoparavegetarianos.com.br/receitas/bolos-receitas/muffin-de-banana-vegano/
 http://www.menuvegano.com.br/article/show/1555/broa-de-milho-e-quinoa
 
 http://bambuchuveroso.com.br/muffins-vegano-de-laranja-com-banana/
