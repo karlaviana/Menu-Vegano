@@ -36,3 +36,4 @@ http://bambuchuveroso.com.br/muffins-vegano-de-laranja-com-banana/
 http://presuntovegetariano.com.br/receitas/vegan/nuggets-de-grao-de-bico-e-legumes/
 
 http://bambuchuveroso.com.br/caldo-verde/
+http://www.cantinhovegetariano.com.br/2015/06/mini-hamburguer-de-batata-doce-e-tofu.html
