@@ -37,3 +37,4 @@ http://presuntovegetariano.com.br/receitas/vegan/nuggets-de-grao-de-bico-e-legum
 
 http://bambuchuveroso.com.br/caldo-verde/
 http://www.cantinhovegetariano.com.br/2015/06/mini-hamburguer-de-batata-doce-e-tofu.html
+https://lar-natural.com.br/recettes/sopa-de-abobora-com-semente-tostada/
