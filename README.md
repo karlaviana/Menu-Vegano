@@ -25,6 +25,7 @@ http://www.menuvegano.com.br/article/show/1876/doce-de-leite-de-coco
 
 http://www.menuvegano.com.br/article/show/1369/bolo-de-chocolate-com-sabor-de-infancia
 http://www.menuvegano.com.br/article/show/1249/alfajor-vegano-de-doce-de-leite
+http://temperoalternativo.com.br/2015/07/31/mini-broa-de-milho/
 http://www.veganismo.org.br/p/receitas-veganas.html?m=1
 http://souvegetariano.com/materias/mural-materias/receita-de-panquecas-veganas-sem-ovos-sem-leite-com-apenas-4-ingredientes/
 http://veganagente.consciencia.blog.br/pao-sem-queijo-o-pao-de-queijo-vegano-feito-de-polvilho-e-batata-doce/
