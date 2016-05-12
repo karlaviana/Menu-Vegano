@@ -25,6 +25,12 @@ http://www.menuvegano.com.br/article/show/315/bolo-de-banana-com-canela
 http://chubbyvegan.net/receitas/creme-de-espinafre-bechamel-de-couve-flor/
 http://www.tudoparavegetarianos.com.br/receitas/bolos-receitas/muffin-de-banana-vegano/
 http://www.menuvegano.com.br/article/show/1555/broa-de-milho-e-quinoa
+
+-----sopas---
+
+http://www.menuvegano.com.br/article/show/1981/sopa-incrivel-de-brocolis-e-batata
+http://www.cantinhovegetariano.com.br/2010/07/creme-de-ervilha.html
+http://www.veggietal.com.br/sopa-feijao-preto/
 http://bambuchuveroso.com.br/muffins-vegano-de-laranja-com-banana/
 http://presuntovegetariano.com.br/receitas/vegan/nuggets-de-grao-de-bico-e-legumes/
 http://bambuchuveroso.com.br/caldo-verde/
