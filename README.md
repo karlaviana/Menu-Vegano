@@ -2,11 +2,8 @@
 inovar a minha comida :)
 
 http://www.menuvegano.com.br/article/show/1814/hamburguer-de-batata-e-porto-belo
-
 http://www.menuvegano.com.br/article/show/1919/pure-de-chuchu
-
 http://www.menuvegano.com.br/article/show/1946/creme-de-amendoim-caseiro-pacoquinha-cremosa
-
 http://www.menuvegano.com.br/article/show/886/farofa-de-abacaxi-com-manjericao
 http://www.menuvegano.com.br/article/show/1774/cupcake-de-fuba
 http://www.menuvegano.com.br/article/show/270/docinho-de-banana
@@ -25,6 +22,7 @@ http://www.menuvegano.com.br/article/show/315/bolo-de-banana-com-canela
 http://chubbyvegan.net/receitas/creme-de-espinafre-bechamel-de-couve-flor/
 http://www.tudoparavegetarianos.com.br/receitas/bolos-receitas/muffin-de-banana-vegano/
 http://www.menuvegano.com.br/article/show/1555/broa-de-milho-e-quinoa
+http://allrecipes.com.br/receita/8239/moqueca-de-mam-o-verde.aspx
 
 -----sopas---
 
