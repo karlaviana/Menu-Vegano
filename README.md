@@ -37,3 +37,4 @@ https://lar-natural.com.br/recettes/sopa-de-abobora-com-semente-tostada/
 http://www.olharanimal.org/receitas-doces/bebidas/13202-chocolate-quente-com-chantilly-de-coco
 https://vista-se.com.br/bolo-de-laranja/
 http://chubbyvegan.net/receitas/muffin-de-banana/
+http://socomesoja.com.br/carne-de-jaca/
