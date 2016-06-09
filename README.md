@@ -38,3 +38,4 @@ http://www.olharanimal.org/receitas-doces/bebidas/13202-chocolate-quente-com-cha
 https://vista-se.com.br/bolo-de-laranja/
 http://chubbyvegan.net/receitas/muffin-de-banana/
 http://socomesoja.com.br/carne-de-jaca/
+http://bambuchuveroso.com.br/sopa-creme-de-ervilhas/
